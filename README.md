@@ -3,4 +3,4 @@
 
 ### 📬 联系我呀
 [Github](https://github.com/hoithauri)
-[Email](mailto:lihuihao1125@outlook.com)
+[Email](mailto:mail@hoithau.eu.org)
