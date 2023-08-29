@@ -2,7 +2,7 @@
 
 ### 👨‍💻 关于我
 
-**I am a senior high school student of Huizhou No.1 Middle School in Guangdong, China.**
+**还是做一个谜比较好**
 
 ### 📬 联系我
 
